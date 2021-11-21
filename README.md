@@ -1,1 +1,1 @@
-# mids-misinformation-proj
+# OFFICIAL FRIENDSHIP PROJECT
